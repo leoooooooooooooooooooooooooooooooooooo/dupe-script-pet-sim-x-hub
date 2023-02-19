@@ -1,0 +1,2 @@
+# dupe-script-pet-sim-x-hub
+NEW FREE PET SIM X DUPE SCRIPT WORKS ONLY 5 TIMES USE IT QUICKLY
